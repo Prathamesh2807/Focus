@@ -1,2 +1,3 @@
 # Focus
 Concentrate
+Self Discipline 
